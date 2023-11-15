@@ -1,0 +1,1 @@
+65% no GIT un GITHUB lietojumu saprotu
